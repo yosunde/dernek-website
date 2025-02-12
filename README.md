@@ -1,2 +1,2 @@
 DOSYA ÇOK BÜYÜK OLDUĞUNDAN GOOGLE DRIVE LINK: 
-DOSYA ÇOK BÜYÜK OLDUĞUNDAN GOOGLE DRIVE LINK ZIP: https://drive.google.com/file/d/1GKSCutcl5nVTf0v25ZT_tns88SIG9FZl/view?usp=drive_link
+DOSYA ÇOK BÜYÜK OLDUĞUNDAN GOOGLE DRIVE LINK ZIP: https://drive.google.com/drive/folders/1M6_mRajBj_VQ4NuUdpbLw5hFV_9LWO3T?usp=drive_link
